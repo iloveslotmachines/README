@@ -1,1 +1,1 @@
-![](https://x.com/timeroom9000/status/1958933593042166264?t=d-5ZkqDkA3yyNDNyI-x8jg&s=19)
+![](https://64.media.tumblr.com/018df31947ee1706c253d675d7012f83/677e1a0c2cecb863-3d/s1280x1920/d0edf7afe06dc7932fe70488094cfc04a9a52fda.jpg)
